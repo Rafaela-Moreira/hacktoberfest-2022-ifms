@@ -16,4 +16,8 @@ ser consumista e comprar coisa da shein
 
 # musica
 
-Okay I pull up
+okay I pull up
+
+# comida favorita
+
+massas no geral

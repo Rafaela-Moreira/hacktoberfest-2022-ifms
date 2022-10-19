@@ -13,3 +13,7 @@ Estudante do Ensino Médio Técnico Integrado em Informática
 # hobby
 
 ser consumista e comprar coisa da shein
+
+# musica
+
+Okay I pull up
